@@ -1,3 +1,3 @@
 Andrew Gillitzer
 Father at 16
-"DReam without goals are just Dreams"
+"Dreams without goals are jsut dreams"
