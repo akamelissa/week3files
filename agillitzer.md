@@ -1,3 +1,3 @@
-#Insert your name
-#Insert your bio
-#Insert your favorite quote
+Andrew Gillitzer
+Father at 16
+"DReam without goals are just Dreams"
