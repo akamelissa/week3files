@@ -1,3 +1,4 @@
-#Insert your name
-#Insert your bio
-#Insert your favorite quote
+#Ryan Roberts
+#18 Years old, Janesville, WI
+#May the Force be with you
+#I like boneless wings
