@@ -1,3 +1,3 @@
-#Insert your name
-#Insert your bio
-#Insert your favorite quote
+#Troy Belford
+#A aging anthropologist looking for a new career
+#Ad astra per aspira
